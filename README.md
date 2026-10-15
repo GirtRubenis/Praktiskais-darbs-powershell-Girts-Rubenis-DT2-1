@@ -1,0 +1,1 @@
+# Praktiskais-darbs-powershell-Girts-Rubenis-DT2-1
